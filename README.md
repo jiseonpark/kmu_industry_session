@@ -1,0 +1,1 @@
+# kmu_industry_session
